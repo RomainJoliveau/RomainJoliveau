@@ -1,3 +1,3 @@
 👨‍💼 Community Manager at Numigi
 
-✅ Follow us on [socials](numigi.com/r/k81)
+✅ Follow us on [socials](https://www.numigi.com/r/k81)

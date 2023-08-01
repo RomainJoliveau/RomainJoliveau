@@ -1,5 +1,3 @@
-Community Manager at Numigi 🐒
-
-🌐 Visit our [website](numigi.com/r/FBa)
+👨‍💼 Community Manager at Numigi
 
 ✅ Follow us on [socials](numigi.com/r/k81)

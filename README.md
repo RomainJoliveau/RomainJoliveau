@@ -1,1 +1,0 @@
-👨‍💼 Community Manager at Numigi
